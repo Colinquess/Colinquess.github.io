@@ -1,2 +1,0 @@
-# colinquess.github.io
-Portfolio
